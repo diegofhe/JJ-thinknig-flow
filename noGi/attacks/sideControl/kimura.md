@@ -79,7 +79,7 @@ These next moves starts from a CONTROLLED SIDE CONTROL (see pre-attacks.txt)
       2. Release your figure 4 where you grip your own hand and Scoop grab his leg (you still have the arm through his )
       3. (here you will release the arm still stuck), place YOUR LEG THAT HE IS LOOKING inside his legs
       4. Throw your hips to be sitting next to him
-      5. G o for 411 
+      5. Go for 411 
 
 <hr>
 
@@ -99,7 +99,7 @@ If None of the flows worked fall to T-KIMURA, in which you will use movement to 
           1. Insert your closer knee so he is between your knees
           2. you will be directly on bottom, pinch his with your knees and wait to see which side you will fall
           3. Make the BOTTOM HOOK onn that side
-          4. T ake his back
+          4. Take his back
     - #### IF HIS HEAD IS ON THE FLOOR (Gordon Ryan side control vol 3 1:10:30  )
       - ##### IF HE IS NOT DEFENDING HIS OTHER ELBOW
         YOKO SANKAKU: look to put your foot through his arm to achieve yoko sankaku
