@@ -62,11 +62,10 @@ These next moves starts from a CONTROLLED SIDE CONTROL (see pre-attacks.txt)
     - **HE IS KEEPING KNEE AND ELBOW CONNECTION DEFENDING LEG KIMURA**   
         **JUJU GATAME** (QUARTER JUJU GATAME)(Gordon Ryan side control vol 3 49)  
         Juju gatame is when you have a KIMURA grip, but you are threatening and arm bar or triangle, since you are in the side with your hips on the ground and looking up
-
         1. Plant your feet on the side he is looking
         2. Fall to his back of the head, this will cause 1 to be on top of his head
         3. Point your other knee UP AND PINCH HIS ARMPIT AND ELBOW
-        4. Never go to an arm bar from here
+        4. Never go to an arm bar from here  
       
         If he has space between his elbow and body go for **YOKO SANKAKU**
         If he does not have space, lean to the head and put your other leg on top of his body to with for an opening
