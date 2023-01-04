@@ -20,7 +20,7 @@ These next moves starts from a CONTROLLED SIDE CONTROL (see pre-attacks.txt)
 ### FOR PROS
 
 - #### **IF HIS ELBOW IS NOT TOUCHING HIS BODY**
-  - #### **KIMURA to YOKO SANKAKU (side triangle)** (Gordon Ryan side control vol 3 26)  
+  - ##### **KIMURA to YOKO SANKAKU (side triangle)** (Gordon Ryan side control vol 3 26)  
     Situation: you are seated on his head and want to break the KIMURA defense grip but you cant
     Requirements:He has the bottom arm elbow not glue to his body
     1. Put your feet through that arm and plant it
@@ -37,7 +37,7 @@ These next moves starts from a CONTROLLED SIDE CONTROL (see pre-attacks.txt)
          4. Embrace his body and put pressure
          5. Finish
 
-    - #### **FAILED YOKO SANKAKU TO KIMURA**  (Gordon Ryan side control vol 3 32)  
+    - ##### **FAILED YOKO SANKAKU TO KIMURA**  (Gordon Ryan side control vol 3 32)  
   
        If you can't achieve 4 because he is not naive and he is not letting you grab his elbow, go back to KIMURA
        1. if he is defending the KIMURA grabbing his tights,  while keeping your arms figure 4,  address his grip by grabbing by the meat putting a leaver with your thumb on his wrist to make it bend and release
@@ -49,8 +49,8 @@ These next moves starts from a CONTROLLED SIDE CONTROL (see pre-attacks.txt)
 
 - #### **IF HIS ELBOW IS TOUCHING HIS BODY**  
 
-    - #### **HIS LEGS ARE ON THE GROUND**  
-      #### **LEG KIMURA**  (Gordon Ryan side control vol 3 43:13)  
+    - ##### **HIS LEGS ARE ON THE GROUND**  
+       **LEG KIMURA**  (Gordon Ryan side control vol 3 43:13)  
       1. Make a deeper KIMURA grip
       2. Slide your hand that you are grabbing in the figure 4 all the way until you reach his leg and place it there for you to stop him opening and defending into a half guard on the next transition
       3. Shot your leg the side he is looking into over your KIMURA grip
@@ -62,7 +62,7 @@ These next moves starts from a CONTROLLED SIDE CONTROL (see pre-attacks.txt)
             - 2. move your head in a rainbow motion towards his hips
             - 3. flare your elbow, lift it up as you move
 
-    - #### **HE IS KEEPING KNEE AND ELBOW CONNECTION DEFENDING LEG KIMURA**   
+    - ##### **HE IS KEEPING KNEE AND ELBOW CONNECTION DEFENDING LEG KIMURA**   
         **JUJU GATAME** (QUARTER JUJU GATAME)(Gordon Ryan side control vol 3 49)  
         Juju gatame is when you have a KIMURA grip, but you are threatening and arm bar or triangle, since you are in the side with your hips on the ground and looking up
         1. Plant your feet on the side he is looking
@@ -73,7 +73,7 @@ These next moves starts from a CONTROLLED SIDE CONTROL (see pre-attacks.txt)
         If he has space between his elbow and body go for **YOKO SANKAKU**
         If he does not have space, lean to the head and put your other leg on top of his body to with for an opening
 
-    - #### **HE IS KEEPING HIS ELBOW TUCK AND HAVING A V-CONNECTION, DEFENDING YOKO SANKAKU AND LEG KIMURA** (Gordon Ryan side control vol 3 59 )  
+    - ##### **HE IS KEEPING HIS ELBOW TUCK AND HAVING A V-CONNECTION, DEFENDING YOKO SANKAKU AND LEG KIMURA** (Gordon Ryan side control vol 3 59 )  
       **ATTACK THE LEGS** He has his leg connected to his elbow and you hae the leg in front of you
       1. Penetrate with your shoulder putting your head outside his legs, his knee needs to be higher than your shoulder
       2. Release your figure 4 where you grip your own hand and Scoop grab his leg (you still have the arm through his )
@@ -89,21 +89,21 @@ If None of the flows worked fall to T-KIMURA, in which you will use movement to 
 - ### **T-KIMURA**  
   T-kimura is when you fall on top of his head and both are on the ground, he is facing up and you still has a grip, He is the "i" and you are the "-" on the "T"
     - #### IF HIS HEAD IS ON YOU
-      - #### IF HE IS TURNING AWAY/INTO YOU (Gordon Ryan side control vol 3 1:02)
+      - ##### IF HE IS TURNING AWAY/INTO YOU (Gordon Ryan side control vol 3 1:02)
         1. He will try to get up, so push your kimura grip and try to lift him from this grip
         2. This will cause back exposure, enter with your knee
         3. He will have momentum, so grab his top armpit to stop it
         4. Make base on the elbow
         5. Take the back
-      - #### IF HE LIFTS HIS HIPS AND MOVE HIS BODY UP (Gordon Ryan side control vol 3 1:05 )
+      - ##### IF HE LIFTS HIS HIPS AND MOVE HIS BODY UP (Gordon Ryan side control vol 3 1:05 )
           1. Insert your closer knee so he is between your knees
           2. you will be directly on bottom, pinch his with your knees and wait to see which side you will fall
           3. Make the BOTTOM HOOK onn that side
           4. T ake his back
     - #### IF HIS HEAD IS ON THE FLOOR (Gordon Ryan side control vol 3 1:10:30  )
-      - #### IF HE IS NOT DEFENDING HIS OTHER ELBOW
+      - ##### IF HE IS NOT DEFENDING HIS OTHER ELBOW
         YOKO SANKAKU: look to put your foot through his arm to achieve yoko sankaku
-      - #### IF HE IS PINCHING THE ELBOW TO THE BODY
+      - ##### IF HE IS PINCHING THE ELBOW TO THE BODY
         1. Lift his arms with the kimura grip
         2. Enter with you leg to start yoko sankaku (Gordon Ryan side control vol 3 1:15:21, both flows )
            - If he releases his arms to defend 
