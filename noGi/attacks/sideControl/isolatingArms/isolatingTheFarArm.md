@@ -11,5 +11,3 @@ If he has both arms  in, you need to regain the far side arm control.
     - Gluing the chin to his shoulders
     - Look at him and glue your ear to YOUR SHOULDER
       That will eliminate space
-
-I WILL CALL THIS POSITION CONTROLLED SIDE CONTROL

@@ -1,6 +1,6 @@
-# KIMURA
-These next moves starts from a CONTROLLED SIDE CONTROL (see pre-attacks.txt)
-<hr>
+# KIMURA FROM FAR ARM ISOLATION
+These next moves starts from a CONTROLLED SIDE CONTROL [see isolatingTheFarArm](isolatingArms/isolatingTheFarArm.md)
+
 
 ## FLOWS
 ### FOR NAIVE OPONENTS
@@ -64,7 +64,7 @@ These next moves starts from a CONTROLLED SIDE CONTROL (see pre-attacks.txt)
 
     - ##### **HE IS KEEPING KNEE AND ELBOW CONNECTION DEFENDING LEG KIMURA**   
         **JUJU GATAME** (QUARTER JUJU GATAME)(Gordon Ryan side control vol 3 49)  
-        Juju gatame is when you have a KIMURA grip, but you are threatening and arm bar or triangle, since you are in the side with your hips on the ground and looking up
+        Juju gatame is when you have a KIMURA grip, but you are threatening and arm bar, since you are in the side with your hips on the ground and looking up
         1. Plant your feet on the side he is looking
         2. Fall to his back of the head, this will cause 1 to be on top of his head
         3. Point your other knee UP AND PINCH HIS ARMPIT AND ELBOW
@@ -115,5 +115,47 @@ If None of the flows worked fall to T-KIMURA, in which you will use movement to 
               5. Take your feet of #4 and place it below his head
               6. Fall to the ground 
               7. Finish YOKO SANKAKU 
-           
-  
+
+<hr> 
+
+# KIMURA FROM NEAR ARM ISOLATION  
+[see isolatingTheNearArm](isolatingArms/isolatingTheNearArm.md)
+
+
+## BOTTOM LEG DOING THE PIN (Gordon Ryan side control vol 4 14:50  )
+  - ### KIMURA
+   1. From the near side isolation, you can choose which leg pins, pin with the one closer to his torso
+   2. The pin needs to be between his shoulder and elbow
+   3. grab his armpit and take your elbow to your stomach
+   4. Step over the head and do the kimura grip 
+   5. Now he can't defend the kimura, because of the pin
+   6. Finish it
+## TOP LEG DOING THE PIN 
+   0. Control far arm
+   1. Put your bottom knee in his armpit
+   2. Penetrate his other armpit with your hand and
+   - ### A) you can take him to his side (Gordon Ryan side control vol 4 17:30  )  
+     3. step over his head with the top knee, you have his arm and head between your legs  
+       - If he does not defend by griping his arms  
+         Kimura
+       - If he does  defend by griping his arms   
+         YOKO SENKAKU
+   - ### B) you can't take him to his side, so just control his shoulder and place your elbows on the ground (Gordon Ryan side control vol 4 23:46 )
+     3. Use your arm controlling his shoulder, make space by pulling the shoulder up, pass your hand that is below his head over it and to the other side, you want both hands attacking one
+     4. With the current grip (it's a forearm grip, your arm and elbow are in a V-shape with his inside) lift no further than his elbow, you want to avoid his hand pummelling
+     5. pass your pin hand from 2 to the hand of 1 . Always base on your elbows not forearms
+     6. Lean your body to his head , he will try to do a futile breach
+     7. Insert the now free hand from 3 on his elbow connection and pin the hand to the ground, grab the Kimura grip.
+     8. Do the steps of the Kimura flow above depending on his hand position. 
+      - His hand is on the ground: finish Kimura
+      - He is grabbing his tight: break the grip
+      - #### If you can't,  do the Kimura-Yoko Senkaku (Gordon Ryan side control vol 4 25:12)
+        1. Put your knee closer to his hips into the armpit
+        2. Release the near arm pin leg and pass in above his head
+        3. Put your face on the ground next to his heaps and lean, this will make him lift his head, place 2 below his head
+        4. Slide your other leg heel to his armpit as you fall pointing the knee up, you will drag the arm into position
+        5. Finish yoko sankaku
+
+
+
+<hr>
