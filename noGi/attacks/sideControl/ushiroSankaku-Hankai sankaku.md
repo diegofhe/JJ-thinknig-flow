@@ -3,7 +3,7 @@
 0. Near and far arm isloated
 1. Lean over the shoulder your head is in, by putting your hips up and straighting your leg closer to his hips helping, this
    Needs to cause the partner to lift his torso
-2. This wil cause your head to be on the ground doing base,  place your weight and base on your elbows, head and pin arm
+2. This will cause your head to be on the ground doing base,  place your weight and base on your elbows, head and pin arm
 3. Go shin mount on his closest hip
 4. Slide your knee to touch your elbow , you can place it over your triceps almost like knee to the armpit if he struggle, for more control.
    across his stomach, with that you won't be trapped in side guard
