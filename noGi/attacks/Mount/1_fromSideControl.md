@@ -1,13 +1,14 @@
 # FROM SIDE CONTROL TO MOUNT:
 ## Isolating near arm:
   1) ISOLATE THE ARM (Gordon Ryan mount vol 1 12:58)
-     - A) same side shin pin: Gabriel grip his head, place your hips closer to his ,lift your hips and penetrate his arm with your shin. Pin it
+     - A) same side shin pin: Gabel grip his head, place your hips closer to his ,lift your hips and penetrate his arm with your shin. Pin it
      - B) other side penetration and switch: if while doing "A" you notice he is super tight, instead of penetrating with the same side, penetrate with your other shin, bring your knees together and place your weight on his arm, pass the arm to the same side shin and recover guard frog position
 
-  2) If he escapes by positioning the arm over your knee grab it with the arm pit and clinch for control
+  2) If he escapes by positioning the arm over your knee, grab it with your arm pit and clinch for control. his arm will be shelves by your leg and armpit (like frog position)
 
-  3) Use the shin mount:  Place your head on the ground for base
-     Put your knee over his stomach and with your shoe laces MAINTAIN CONTACT with his outer leg just above the hip, so you can control better
+## From head and arm side control
+  3) Use the shin mount:  Place your head on the ground   (same side your body is at) for base
+     Put your soon to be outer knee over his inner stomach and with your shoe laces MAINTAIN CONTACT with his leg just above the hip, so you can control better (you have a pseudo knee on belly)
      Use the motion of the knee on belly inner switch to complete the mount without giving half guard
 
      If he has a near arm isolated ( not with a frame on your hip) and want to use momentum to shift you (Gordon Ryan mount vol 1  27)
