@@ -3,19 +3,20 @@
   1) ISOLATE THE ARM (Gordon Ryan mount vol 1 12:58)
      - A) same side shin pin: Gabel grip his head, place your hips closer to his ,lift your hips and penetrate his arm with your shin. Pin it
      - B) other side penetration and switch: if while doing "A" you notice he is super tight, instead of penetrating with the same side, penetrate with your other shin, bring your knees together and place your weight on his arm, pass the arm to the same side shin and recover guard frog position
+     
+  From here you can attack
 
   2) If he escapes by positioning the arm over your knee, grab it with your arm pit and clinch for control. his arm will be shelves by your leg and armpit (like frog position)
 
-## From head and arm side control
-  3) Use the shin mount:  Place your head on the ground   (same side your body is at) for base
-     Put your soon to be outer knee over his inner stomach and with your shoe laces MAINTAIN CONTACT with his leg just above the hip, so you can control better (you have a pseudo knee on belly)
-     Use the motion of the knee on belly inner switch to complete the mount without giving half guard
-
-     If he has a near arm isolated ( not with a frame on your hip) and want to use momentum to shift you (Gordon Ryan mount vol 1  27)
-     When you are transitioning from shin mount to mount, you out all your weight to a side, he can use this momentum to roll you over with a bridge. The moment you see this
-     1.  Go to a pseudo s mount but keep your body weight off his body, use your forehead and elbows to base and keep your front foot basing on the ground connected to his hip. He needs to stay FLAT IN THE GROUND, do not let him turn.
-     2. Elevate your hips to they are not in contact with his body
-     3. Use the leg behind his back (or behind his hips) to make a widget and counter the drag he will make
+        Use the shin mount:  Place your head on the ground   (same side your body is at) for base
+        Put your soon to be outer knee over his inner stomach and with your shoe laces MAINTAIN CONTACT with his leg just above the hip, so you can control better (you have a pseudo knee on belly)
+        Use the motion of the knee on belly inner switch to complete the mount without giving half guard
+   
+        If he has a near arm isolated ( not with a frame on your hip) and want to use momentum to shift you (Gordon Ryan mount vol 1  27)
+        When you are transitioning from shin mount to mount, you out all your weight to a side, he can use this momentum to roll you over with a bridge. The moment you see this
+        1.  Go to a pseudo s mount but keep your body weight off his body, use your forehead and elbows to base and keep your front foot basing on the ground connected to his hip. He needs to stay FLAT IN THE GROUND, do not let him turn.
+        2. Elevate your hips to they are not in contact with his body
+        3. Use the leg behind his back (or behind his hips) to make a widget and counter the drag he will make
 
 <hr>
 
@@ -38,11 +39,11 @@ Steps:
 ## Mounting without controlling the arms (Gordon Ryan mount vol 1 42)
 If you want to isolate the far arm but he is gluing his elbow to the ground
   1. move your arm doing the cross face over his face and place your elbow
-     A) over his arm (she can bridge and unbalance you, maybe turning you)
-     B) inside his arm (se can push and escape). He will cross face you to do this. You can always anticipate with an arm waiting and grab a Kimura grip )
+     A) over his arm (he can bridge and unbalance you, maybe turning you)
+     B) inside his arm (he can push and escape). He will cross face you to do this. You can always anticipate with an arm waiting and grab a Kimura grip )
   
   It really does not matter, just watch out for his options
-  2. Move your hips to his head pushing he's arm
+  2. Move your hips to his head pushing his arm
   3. Grab his leg and make him join his knee by pointing them to you
   
   - A) His near elbow is away from his body (Gordon Ryan mount vol 1 44:45) 
