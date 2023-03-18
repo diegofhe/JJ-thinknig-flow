@@ -27,9 +27,10 @@
 3. He is an explosive player and will try to use momentum to turn you over
 
 Steps:
+0. you have the far arm isolated 
 1. Move your body to his hips and be close to them
-2. Keep his far arm isolated with your forehead on the ground
-3. Use your free arm to post his head and move yours from the far side to the near side
+2. Keep his far arm isolated with your forehead on the ground, with your fat arm grab an underhook on his far arm
+3. release the cross face and use that arm to post his head and move yours from the far side to the near side
 
     - A) If he does not has his elbow glued to his side: underhook. Pass your arm through that space and flare both elbows to be above his shoulder line. You should have either clown gripping his shoulders or 10 finger grips between your hands
     
