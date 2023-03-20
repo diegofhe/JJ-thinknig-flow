@@ -13,7 +13,7 @@
         Use the motion of the knee on belly inner switch to complete the mount without giving half guard
    
         If he has a near arm isolated ( not with a frame on your hip) and want to use momentum to shift you (Gordon Ryan mount vol 1  27)
-        When you are transitioning from shin mount to mount, you out all your weight to a side, he can use this momentum to roll you over with a bridge. The moment you see this
+        When you are transitioning from shin mount to mount, you put all your weight to a side, he can use this momentum to roll you over with a bridge. The moment you see this
         1.  Go to a pseudo s mount but keep your body weight off his body, use your forehead and elbows to base and keep your front foot basing on the ground connected to his hip. He needs to stay FLAT IN THE GROUND, do not let him turn.
         2. Elevate your hips to they are not in contact with his body
         3. Use the leg behind his back (or behind his hips) to make a widget and counter the drag he will make
