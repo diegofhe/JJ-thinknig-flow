@@ -39,11 +39,13 @@ Steps:
 
 ## Mounting without controlling the arms (Gordon Ryan mount vol 1 42)
 If you want to isolate the far arm but he is gluing his elbow to the ground
- 1. move your arm doing the cross face over his face and place your elbow
+
+1. move your arm doing the cross face over his face and place your elbow
      - A) over his arm (he can bridge and unbalance you, maybe turning you)
      - B) inside his arm (he can push and escape). He will cross face you to do this. You can always anticipate with an arm waiting and grab a Kimura grip )
   
   It really does not matter, just watch out for his options
+
 2. Move your hips to his head pushing his arm
 3. Grab his leg and make him join his knee by pointing them to you
   
