@@ -20,19 +20,19 @@
 
 <hr>
 
-## Mount fallback (double unders and over under) Gordon Ryan mount vol 1 33)
+## Mount fallback (double unders and over under) to mount Gordon Ryan mount vol 1 33)
 ### When to use it?
 1. You ended in that position
 2. You can't isolate the near arm using the side control legs isolation method 
 3. He is an explosive player and will try to use momentum to turn you over
 
 Steps:
-0. you have the far arm isolated 
+0. you have the far arm isolated and are in side control (frog position)
 1. Move your body to his hips and be close to them
 2. Keep his far arm isolated with your forehead on the ground, with your far arm grab an underhook on his far arm
-3. release the cross face and use that arm to post his head and move yours from the far side to the near side
+3. release the cross face and use that arm to post his head and move yours from the far side to the near side, once your head is position you need to do something with your now free hand (the one that was posting his head). for that you will see what he does with his not controlled hand (same side you are in)
 
-    - A) If he does not has his elbow glued to his side: underhook. Pass your arm through that space and flare both elbows to be above his shoulder line. You should have either clown gripping his shoulders or 10 finger grips between your hands
+    - A) If he does not has his elbow glued to his side: underhook (double under). Pass your arm through that space and flare both elbows to be above his shoulder line. You should have either clown gripping his shoulders or 10 finger grips between your hands
     
     - B) he has his elbow glued to his body: overhook. Grab his elbow or triceps and pull it to your body while you stand up basing with your outer leg. Grab his elbow with yours: place your hand on your tummy. This will make a strong elbow grip (like guillotine)
 
