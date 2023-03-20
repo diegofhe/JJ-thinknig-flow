@@ -46,7 +46,7 @@ If you want to isolate the far arm but he is gluing his elbow to the ground
   
 It really does not matter, just watch out for his options
 
- 2. Move your hips to his head pushing his arm
+ 2. Move your hips to his head pushing his arm (option a) or just pushing his wrist but he tuck his elbow in your hips (gain inside position)( option 2)
  3. Grab his leg and make him join his knee by pointing them to you
   
     - A) His near elbow is away from his body (Gordon Ryan mount vol 1 44:45) 
