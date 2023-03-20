@@ -50,7 +50,7 @@ It really does not matter, just watch out for his options
  3. Grab his leg and make him join his knee by pointing them to you
   
     - A) His near elbow is away from his body (Gordon Ryan mount vol 1 44:45) 
-      4. If feel your hips are inside his elbow, in the armpit, shoot your leg to mount .
+      4. If you feel your hips are inside his elbow, in the armpit, shoot your leg to mount .
 
       5. Move to a middle mount and has both your needs will be pressuring his armpit, this will avoid his "elbow escape"
   
