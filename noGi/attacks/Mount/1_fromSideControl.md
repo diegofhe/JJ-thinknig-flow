@@ -51,14 +51,14 @@ It really does not matter, just watch out for his options
   
     - A) His near elbow is away from his body (Gordon Ryan mount vol 1 44:45)
 
-     4. If you feel your hips are inside his elbow, in the armpit, shoot your leg to mount.
+      4. If you feel your hips are inside his elbow, in the armpit, shoot your leg to mount.
 
-     5. Move to a middle mount and have both your knees pressuring his armpit, this will avoid his "elbow escape"
+      5. Move to a middle mount and have both your knees pressuring his armpit, this will avoid his "elbow escape"
   
      - B) His near elbow is glued to his body. You can't do A because he will either elbow escape or he will do an ankle trap (Gordon Ryan mount vol 1 48:47)
        4. Take a step to start mounting, do not shift your body weight yet
 
-       5. Reach under his but and grab his leg
+       5. Reach under his butt and grab his leg
        With the heel of #4 Digg  and place it on the back of his knees,  lift his leg with your arm and  grab both of his legs with the one digging.
 
        6. Go to both your knees (you will shift his hips from being in a side to the middle) and pass your other leg behind your
