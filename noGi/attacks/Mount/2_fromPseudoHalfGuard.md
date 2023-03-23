@@ -17,7 +17,7 @@ Bottom options
       A) Near side underhook (Gordon Ryan Mount vol 2 32:25)
       B) double underhook
 
-## 3/4 mount recover mount 
+## 3/4 mount recover mount with upper body control
 
 ### - A) Near side underhook: (Gordon Ryan Mount vol 2 32:25) 
    Achieve inside position on his near arm, and grab an underhook, flare the elbow of the underhook to extend the partner and create space between his elbow and hips and put your fore-head on the other side of his head, base on the ground, pick up(lift your hips), take the free leg and insert a butterfly hook into his half guard and pass to mount
