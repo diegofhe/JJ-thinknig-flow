@@ -1,5 +1,5 @@
-## Opponent has you on pseudo-HalfGuard (Gordon Ryan Mount vol 2 24:43)
-Bottom guy achieve ankle trap and top guy is having his knee on the trap side on the ground, not yet in the half guard of the bottom guy
+## 3/4 recovery guard with NO CONTROL OF THE UPPER BODY (Gordon Ryan Mount vol 2 24:43)
+Bottom guy achieve ankle trap and top guy is having his knee on the trap side on the ground, not yet in the half guard of the bottom guy, AND HE HAS FREE PROTECTED ELBOWS CLOSE TO HIS TORSO, READY FOR AN ELBOW ESCAPE
 
 Bottom options
  - A) Put a hand through his legs achieving a deep half guard
