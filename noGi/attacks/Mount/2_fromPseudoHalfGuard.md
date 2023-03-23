@@ -20,7 +20,7 @@ Bottom options
 ## 3/4 mount recover mount 
 
 ### - A) Near side underhook: (Gordon Ryan Mount vol 2 32:25) 
-   Achieve inside position on his near arm, and grab an underhook, flare the elbow of the underhook and put your fore-head on the other side of his head, base on the ground, pick up(lift your hips), take the free leg and insert a butterfly hook into his half guard and pass to mount
+   Achieve inside position on his near arm, and grab an underhook, flare the elbow of the underhook to extend the partner and create space between his elbow and hips and put your fore-head on the other side of his head, base on the ground, pick up(lift your hips), take the free leg and insert a butterfly hook into his half guard and pass to mount
 
 ### - B) Double underhook (BEST OF ALL): (Gordon Ryan Mount vol 2 37) 
   while doing a) he can turn completely into you and free his shoulders and if he is an explosive guy this can lead to problems (there is back exposure, but not really because he can scoop the leg ). If that happens
