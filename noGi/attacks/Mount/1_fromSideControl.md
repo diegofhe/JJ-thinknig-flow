@@ -9,7 +9,7 @@
   2) If he escapes by positioning the arm over your knee, grab it with your arm pit and clinch for control. his arm will be shelves by your leg and armpit (like frog position)
 
         Use the shin mount:  Place your head on the ground   (same side your body is at) for base
-        Put your soon to be outer knee over his inner stomach and with your shoe laces MAINTAIN CONTACT with his leg just above the hip, so you can control better (you have a pseudo knee on belly)
+        Put your soon to be outer knee over his inner stomach and with your shoe laces MAINTAIN CONTACT with his leg just above the hip, so you can control better (you have a pseudo knee on belly). when you mount FLARE HIS OUTER ELBOW WOTH YOUR INNER CONTROL 
         Use the motion of the knee on belly inner switch to complete the mount without giving half guard
    
         If he has a near arm isolated ( not with a frame on your hip) and want to use momentum to shift you (Gordon Ryan mount vol 1  27)
