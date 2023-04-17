@@ -8,7 +8,8 @@
 
 ## Control: lifting elbows (Gordon Ryan mount vol 3 7:50)
    He can have one or both elbows in the inside position with his back flat on the ground. We need to select the side which has less weight. If he only has one inside elbow, focus on that one
-1. make a scoop grip on his triceps (almost at the shoulders) and lift it little
+0. create space: on the other side of the elbow he has inside control put a base with your hand on the ground, you will tilt to this side to lift his attacking side shoulder
+1. make a scoop grip on his shoulders and lift it little more with the help of your knee
 2. Move your scoop grip from the shoulder to his elbow and break the inside position
 3. Place your knee up in a one side high mount, make sure your knee and his elbow are at the same level
 
