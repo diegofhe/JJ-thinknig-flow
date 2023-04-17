@@ -23,7 +23,7 @@
 
  ### Countering Counter (Gordon Ryan mount vol 3 20)
    Cross wrist grip and he tries to elbow escape  
-  1. Release the cross grip of the side that is not being attacked and double grip the one in danger (you know have a cross grip and a straight one on the attacking hand). This will avoid him to move his elbow and displace your knee, since now he has límited range to move
+  1. Release the cross grip of the side that is not being attacked and double grip the one in danger (you know have a cross grip and a straight one on the attacking hand). release the cross hand grip and pass it behind his head and regrab. This will avoid him to move his elbow and displace your knee, since now he has límited range to move, because of the widget caused by your grip behind his head.
   2. switch to an s mount and achieve gift wrap
      - A)back take
      - B)recover mount:  with your free hand grab his elbow and move your head from center line to a side, this will help you take that elbow up.
