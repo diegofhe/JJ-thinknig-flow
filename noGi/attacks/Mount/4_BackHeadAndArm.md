@@ -9,10 +9,10 @@ Once you pin an arm with the cross grip
         3. On the hands, your focus is not the grip but the elbow position, make sure you have the inside elbow position between your elbow and his. Pinch your elbows togethe and use your chest to pressure his side to make it even more difficult to turn
         4. Now achieve a gift wrap grip
            (This also works when he has inside elbow positionCross grip pin follow ups (Gordon Ryan mount 3 26:30) and tries the elbow escape, follow by back take )
-    - B) Do nothing Cross grip pin follow ups (Gordon Ryan mount 3 27:30)
+    - B) Do nothing with the hands (Cross grip pin follow ups (Gordon Ryan mount 3 27:30)), but trying the knee elbow escape
 
         2. While maintaining the grip trapping his head, with your other arm grab his elbow and scope it out
-        3. Achieve gift wrap
+        3. Achieve gift wrap. here in this B option you can move to s-mount if you feel like you are loading the battle for the inside knee position
 
 
 ## Back headed and arm finish: front triangle (multi? sankaku) (Gordon Ryan Mount vol 3 33)
