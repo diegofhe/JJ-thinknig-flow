@@ -6,7 +6,7 @@ Once you pin an arm with the cross grip
     - A) Defend the grips (Cross grip pin follow ups)
 
         2. he will turn to address the grips, once he turn make sure to Pinch his torso with your knee, to avoid him turning flat again
-        3. On the hands, your focus is not the grip but the elbow position, make sure you have the inside elbow position between your elbow and his. Pinch your elbows together.
+        3. On the hands, your focus is not the grip but the elbow position, make sure you have the inside elbow position between your elbow and his. Pinch your elbows togethe and use your chest to pressure his side to make it even more difficult to turn
         4. Now achieve a gift wrap grip
            (This also works when he has inside elbow positionCross grip pin follow ups (Gordon Ryan mount 3 26:30) and tries the elbow escape, follow by back take )
     - B) Do nothing Cross grip pin follow ups (Gordon Ryan mount 3 27:30)
