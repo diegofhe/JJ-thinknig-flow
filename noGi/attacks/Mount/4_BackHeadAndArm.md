@@ -4,6 +4,7 @@
 Once you pin an arm with the cross grip
 1. Maintain that arm gripped with the straight grip arm, and pass the "crossed" one behind his head, to achieve a 2 on 1 with his head trapped. He has two options
     - A) Defend the grips (Cross grip pin follow ups)
+
         2. he will turn to address the grips, once he turn make sure to Pinch his torso with your knee, to avoid him turning flat again
         3. On the hands, your focus is not the grip but the elbow position, make sure you have the inside elbow position between your elbow and his. Pinch your elbows together.
         4. Now achieve a gift wrap grip
