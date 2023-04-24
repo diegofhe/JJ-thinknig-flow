@@ -18,7 +18,7 @@ Once you pin an arm with the cross grip
 ## Back headed and arm finish: front triangle (multi? sankaku) (Gordon Ryan Mount vol 3 33)
 
 0. Achieve back head and arm
-1. Upper s mount: Go to s mount and move your front heel to the same level as your elbow (in the middle of his stomach) and place your bottom knee behind his back
+1. Upper s mount: Go to s mount and move your front heel to the same level as your elbow (in the middle of his stomach). while still on your keen (no fall to the butt yet) place your bottom knee behind his back
 2. With your gift wrap grip lift his head and rest in on your bottom leg
 3. Shoot and  Cross your top leg by connecting your top heel with your bottom knee
 4. Shift your weight towards his feet, like you are falling, and also pull his body up, this will make your bottom knee to rise, use this to free your bottom leg and plant it as a wedge behind his head. This wedge will avoid him going back
