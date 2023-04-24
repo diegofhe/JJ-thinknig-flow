@@ -10,6 +10,7 @@ Once you pin an arm with the cross grip
         4. Now achieve a gift wrap grip
            (This also works when he has inside elbow positionCross grip pin follow ups (Gordon Ryan mount 3 26:30) and tries the elbow escape, follow by back take )
     - B) Do nothing Cross grip pin follow ups (Gordon Ryan mount 3 27:30)
+
         2. While maintaining the grip trapping his head, with your other arm grab his elbow and scope it out
         3. Achieve gift wrap
 
