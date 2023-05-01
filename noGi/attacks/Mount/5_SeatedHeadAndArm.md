@@ -1,5 +1,5 @@
 ## Seated head and arm series 
-The essence of this position es having the head and arm controlled BY YOUR  ELBOWS POSITION, and having weight less legs to play with them
+The essence of this position is having the head and arm controlled BY YOUR  ELBOWS POSITION, and having weight less legs to play with them
 The control by your elbow is achieved by pinching together your elbows and having your chin close to his body
 
 The starting point of this position is: (Gordon Ryan Mount vol 4 1:00)
